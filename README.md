@@ -1,2 +1,2 @@
-Projeto Estrela
-www.projetoestrela.org
+É de causa!
+www.edecausa.com
